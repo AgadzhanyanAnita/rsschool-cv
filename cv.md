@@ -25,4 +25,4 @@ Check my GitLab account @a.agadzhanyan
 
 ### English
 * Good reading and translating ability
- *I had English lessons with tutor and from book "English Grammar in Use"
+* I had English lessons with tutor and from book "English Grammar in Use"
